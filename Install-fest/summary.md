@@ -1,3 +1,5 @@
+## Installfest
+
 Til en install-fest kan du få hjælp til at installere linux på din pc
 af erfarne linux-brugere.
 
