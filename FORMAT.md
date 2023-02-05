@@ -1,4 +1,4 @@
-# kalender-data
+# Format of calendar-data
 Raw data for our calendar
 
 ## Files
