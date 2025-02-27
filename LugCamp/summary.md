@@ -1,1 +1,1 @@
-## LugCamp i Ullerup
+## LugCamp
