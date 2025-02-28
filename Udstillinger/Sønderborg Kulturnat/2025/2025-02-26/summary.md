@@ -1,1 +1,1 @@
-GF Kulturnatten - Per og Henning
+GF Kulturnatten
