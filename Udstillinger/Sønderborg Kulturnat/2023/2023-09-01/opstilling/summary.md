@@ -1,1 +1,0 @@
-#Opstilling til Sønderborg Kulturnat

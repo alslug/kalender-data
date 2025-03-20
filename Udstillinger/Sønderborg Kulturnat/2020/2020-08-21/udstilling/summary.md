@@ -1,1 +1,0 @@
-## Udstilling ved Sønderborg Kulturnat

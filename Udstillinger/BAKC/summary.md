@@ -1,1 +1,0 @@
-## Åbent hus på Bakkensbro Aktivitets- og Kulturcenter

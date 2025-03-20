@@ -1,1 +1,0 @@
-## Mulighed for at hjælpe til med opbygningen af LugCamp
